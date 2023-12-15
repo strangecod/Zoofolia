@@ -1,0 +1,6 @@
+![IMG-20231215-WA0005](https://github.com/strangecod/Zoofolia/assets/89919241/05196e4e-e61b-4562-9837-ff6292ef1571)
+![IMG-20231215-WA0003](https://github.com/strangecod/Zoofolia/assets/89919241/e281878e-1f8b-45f2-b78a-3f8257524a98)
+![IMG-20231215-WA0006](https://github.com/strangecod/Zoofolia/assets/89919241/d9d0a5dd-3f89-4552-97a0-b4799d8bc756)
+![IMG-20231215-WA0002](https://github.com/strangecod/Zoofolia/assets/89919241/9d8640a6-b48e-4450-aa99-5e6318b64692)
+![IMG-20231215-WA0007](https://github.com/strangecod/Zoofolia/assets/89919241/8ef01da1-e30d-469f-a0e0-8a3db31edfc8)
+![IMG-20231215-WA0004](https://github.com/strangecod/Zoofolia/assets/89919241/07785a54-ab7a-41e1-9d76-33ea109f76c0)
